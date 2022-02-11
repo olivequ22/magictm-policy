@@ -1,4 +1,4 @@
-# Regulamin MagicTM
+# Regulamin o  Olivequ 
 
 _Zaktualizowano: 25.04.2020_
 
